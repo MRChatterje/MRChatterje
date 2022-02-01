@@ -1,4 +1,4 @@
-![I'm a Cyber Security Analyst & Vulnerability Researcher](https://www.sddatacenter.com/wp-content/uploads/2018/10/Privacy-1024x288.png)
+![I'm a Cyber Security Analyst & Vulnerability Researcher](https://pin.it/7zzwwIq)
 # Hi , It's **MR Chatterjee** here
 ## I'm a Cyber Security Analyst & Vulnerability Researcher
 
